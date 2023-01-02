@@ -2,4 +2,4 @@
 
 👀I am interested in Web Development,Front-End Development.
 
-🧑‍🎓Currently Studying BTECH In COMPUTER SCIENCE AND ENGINEERING At Indian Institute Of Information Technology,Kottayam.
+🧑‍🎓Currently Studying BTECH IN COMPUTER SCIENCE AND ENGINEERING AT INDIAN INSTITUTE OF INFORMATION TECHNOLOGY,KOTTAYAM.
